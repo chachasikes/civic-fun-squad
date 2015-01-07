@@ -23,6 +23,7 @@ We are pretty low key, but we can have some more focus and story-telling in 2015
 * Go to the CivicMakers drink nights sometimes & also maybe MakersSF or other maker oriented communities
 * Play more with Market Street Prototyping Festival, induct more MSPF folks
 * More bike trips
+* Take Emergency Dance Services more seriously? Like... go do something this year for actual? (@alanjosephwilli)
 
 #### What else?
 (ping @chachasikes & she can add you to this repo so you can edit)
