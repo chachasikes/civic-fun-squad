@@ -19,6 +19,12 @@ We are pretty low key, but we can have some more focus and story-telling in 2015
 * Share ideas for inspirational and relevant civic activities.
 * Tell stories of our adventures & distribute them to other places.
 * Make a twitter list of participants or something simple like that.
+* Maybe write a column in Civic Design Quarterly? (@mollyampersand?)
+* Go to the CivicMakers drink nights sometimes & also maybe MakersSF or other maker oriented communities
+* Play more with Market Street Prototyping Festival, induct more MSPF folks
+* More bike trips
 
 #### What else?
 (ping @chachasikes & she can add you to this repo so you can edit)
+
+
